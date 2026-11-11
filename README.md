@@ -1,1 +1,1 @@
-# Spaanse_-woordenschat
+# Spaanse_woordenschat
